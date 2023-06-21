@@ -28,5 +28,5 @@
 - ⚡ Fun facts: ...
   I'm an avid Longboarder, I love to ride downhill at blazing speeds!
   Aspiring Chess Grandmaster
-  Ask me about how to cook a perfect steak!
+  
 
